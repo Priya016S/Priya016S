@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Priya016S
+- 👀 I’m interested in Genomics work
+- 📫 How to reach me ...
+- Email: priyasharma0016.ps@gmail.com
